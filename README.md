@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JEmreT
-- 👀 I’m interested in military technologys 
+- 👀 I’m interested in military technologys and video games
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on someone that can teach me new things
 - 📫 How to reach me with this mail emretok09052008@gmail.com
